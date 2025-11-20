@@ -1,1 +1,0 @@
-# acil-sagl-k-kimligi2.1
